@@ -1,16 +1,15 @@
-## Hi there 👋
+<div align="center">
+  <img src="https://i.imgur.com/kXD4lmn.jpeg">
+</div>
 
-<!--
-**iluxent/iluxent** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
+ <img src= "https://64.media.tumblr.com/322a49841f620d6ad1a80cd8ef47c08a/3ccdb8309ae367eb-7c/s400x600/bca814e15529de3c9ecfa92207ed8969e083f34d.pnj">
+</div>
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<div align="center">
+◟𝙇𝘺𝘯𝘯 ★ 𝙅𝘪𝘢𝘰◞
+</div>
+<div align="center">
+. 𝙨𝙝𝙚 ! 𝙗𝙞𝘴𝘦𝘹𝘶𝘢𝘭 ᯓ 𝘢𝘳𝘵𝘪𝘴𝘵 
+  ᡣ𐭩 𝘢𝘳𝘵𝘪𝘴𝘵 ^_^
+</div>
