@@ -4,7 +4,7 @@
 
 
 <div align="center">
- <img src= "https://64.media.tumblr.com/322a49841f620d6ad1a80cd8ef47c08a/3ccdb8309ae367eb-7c/s400x600/bca814e15529de3c9ecfa92207ed8969e083f34d.pnj">
+ <img src= "https://64.media.tumblr.com/70b5d0c19e074886f44a43a79fcbf80e/407055fc4094a03f-55/s1280x1920/15ddd9058199eb955d6c6c284a8cb66ea052d6d5.pnj">
 </div>
 <div align="center">
   <img src="https://i.imgur.com/rfzaPNi.webp">
@@ -19,7 +19,7 @@
 </div>
 
 <div align="center">
-  <img src=" https://gifcity.carrd.co/assets/images/gallery43/821dff9c.png?v=d7271437">
+ <img src= "https://64.media.tumblr.com/9531edb344231e47224023edc07bd45a/407055fc4094a03f-5c/s1280x1920/0de299e74a55ff02a5c80c84762520d252204d52.pnj">
 </div>
 
 <div align="center">
