@@ -32,14 +32,12 @@
 </div>
 
 <div align="center">
-  <img src= "https://i.imgur.com/TbItnVV.webp">
+  <img src= "https://i.imgur.com/5hmjbYw.png">
 </div>
 
-Byi, i'm 𝙣𝙤𝙩 an expert when it comes to pjsk lores. Since i'm playing on the JP version, i don't understand anything at all LMAO
-
-I'm the type to play pjsk only for the fun rhythm game and cool characters. But i'd love to know more about lores! Since i'm now slowly getting attached to it. So yea for now i'm still a newbie but for the rhythm game, i'd say i'm an average player.
-
-(i like playing in 25-30+ difficulty, only expert and master sometimes hhh)
+<div align="center">
+  <img src= "https://i.imgur.com/TbItnVV.webp">
+</div>
 
 <div align="center">
   <img src="https://i.imgur.com/NpOJ5LS.png">
