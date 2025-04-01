@@ -22,6 +22,10 @@
  <img src= "https://64.media.tumblr.com/9531edb344231e47224023edc07bd45a/407055fc4094a03f-5c/s1280x1920/0de299e74a55ff02a5c80c84762520d252204d52.pnj">
 </div>
 
+Byi, i'm 𝙣𝙤𝙩 an expert when it comes to pjsk lores. Since i'm playing on the JP version, i don't understand anything at all LMAO HELP
+
+I'm the type to play pjsk only for the fun rythm game and cool characters. But i'd love to know more about lores! so yea for now i'm still a newbie but for the rythm game i'd say i'm a average player. (i like playing in 25-30+ levels, only expert and master sometimes hhh)
+
 <div align="center">
   <img src="https://i.imgur.com/NpOJ5LS.png">
 </div>
