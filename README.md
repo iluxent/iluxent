@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://i.imgur.com/kXD4lmn.jpeg">
+  <img src="https://i.imgur.com/rfzaPNi.webp">
 </div>
 
 <div align="center">
@@ -12,4 +12,8 @@
 <div align="center">
 . 𝙨𝙝𝙚 ! 𝙗𝙞𝘴𝘦𝘹𝘶𝘢𝘭 ᯓ 𝘢𝘳𝘵𝘪𝘴𝘵 
   ᡣ𐭩 𝘢𝘳𝘵𝘪𝘴𝘵 ^_^
+</div>
+
+<div align="center">
+  <img src="https://i.imgur.com/NpOJ5LS.png">
 </div>
