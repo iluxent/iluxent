@@ -36,7 +36,7 @@
 </div>
 
 <div align="center">
-  <img src= "https://i.imgur.com/TbItnVV.webp">
+ <img src= "https://64.media.tumblr.com/70b5d0c19e074886f44a43a79fcbf80e/407055fc4094a03f-55/s1280x1920/15ddd9058199eb955d6c6c284a8cb66ea052d6d5.pnj">
 </div>
 
 <div align="center">
